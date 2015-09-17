@@ -1,0 +1,2 @@
+# stopwastingmytime.github.io
+stopwastingmytime
